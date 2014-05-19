@@ -1,4 +1,4 @@
 Frequently Asked Questions
 --------------------------
 
-1. Apa?
+1. Jadi Apa?
